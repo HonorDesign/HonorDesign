@@ -1,7 +1,7 @@
 Hi, I`m HonorDesign -
 I`m Interested in making the most out of Datas (Data enthusiast) and becoming a Data-wise decision maker-
 i`m currently learninng Data Analysis and Visualization-
-You can reach me @ Ukponoaniemaokon08030475158@gmail.com or on Twitter @ https://x.com/HonorAnalyst?t=2Y6IF7f5a3llgvGPbu_HWA&s=09-
+You can reach me @ ukponoaniemaokon08030475158@gmail.com or on Twitter @ https://x.com/HonorAnalyst?t=2Y6IF7f5a3llgvGPbu_HWA&s=09-
 
 
 
